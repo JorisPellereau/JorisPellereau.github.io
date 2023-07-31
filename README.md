@@ -1,1 +1,1 @@
-# JorisPellereau.githug.io
+# JorisPellereau.github.io
